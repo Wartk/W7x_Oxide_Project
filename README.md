@@ -15,4 +15,6 @@ The project had as members: <br>
 
 _Now that I can do my own projects without needing a base or anything, I'll be making this available for your study. Thank you so much for everything, bye bye._
 
+Download: https://apkadmin.com/8l3u9ygi83iy/W7xOxideModMenu.7z.html
+
 
